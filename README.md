@@ -1,6 +1,11 @@
-![](https://komarev.com/ghpvc/?username=m08935467&label=𓉸*.✧&color=667CAF)
+![](https://komarev.com/ghpvc/?username=m08935467&label=Visitors:&color=667CAF)
 <body>
+  <h6 align=center>A real AzureTime/SpawnKill and SeaSentry/ToolHook/LuciWill agent trust!</h6>
+  
 <img src= "https://ik.imagekit.io/wiw3sef3e/Untitled472_20251227002220.png">
+  
+<h5>My Fandoms:</h5>
+<h6>Alien Stage, Bungo Stray Dogs, Chainsaw Man, Cookie Run: Kingdom, Danganronpa, Dead Plate, Degrees Of Lewdity, Deltarune, Die Of Death, Dispatch, Five Nights At Freddy's, Forsaken, Genshin Impact, Mandela Catalogue, Murder Drones, Needy Streamer Overdose, Phigros, Project Sekai, Pupi's Midnight Munchie, Stardew Valley, Stellar Paradigm, The Amazing Digital Circus, Undertale, Your Turn To Die</h6>
 
 <h2 align=center>.˳·˖✶ ˚⊹. ࣪𓉸 ࣪⊹˚ ✶˖·˳.</h2>
 
